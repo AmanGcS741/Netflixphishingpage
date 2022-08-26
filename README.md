@@ -1,4 +1,5 @@
 # Netflixphishingpage
+first of all i'm responsible for any illegal use
 Netflix scampage (phishing page)
 Netflix scampage [new 2022 with bank log 3d  + PayPal+ Gift Card 👌👌👌] ALL IN ONE SCAMA + Letter priv8 new design
 BY Eagle4web GcS- Team Dz
