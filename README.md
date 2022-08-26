@@ -9,7 +9,7 @@ follow me i will show how
 2- upload it on web hosting 
 ===============================================================================================================
 let's see the feautures of this scampage it's not shit like what other make
-this link shows how it's=> a0698731.xsph.ru  let's see
+
 Feautures: 
 Send result to email perfectly ✔✔✔
 Send result to telegram API ✔✔✔
